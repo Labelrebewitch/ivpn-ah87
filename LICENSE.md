@@ -1,4 +1,4 @@
-
+Enhance your IVPN experience with advanced IVPN Service | high-speed-servers + auto-connect, the #1 service. Includes high-speed-servers and auto-connect for a safer and more
 
 
 
